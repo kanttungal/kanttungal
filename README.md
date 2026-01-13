@@ -1,5 +1,5 @@
 # 💫 About Me:
-My Self Vishnukant.I am Pursuing MCA and <br>I'm Currently working in NavPragy Technology Pvt.Ltd.
+My Self Vishnukant.I am Pursuing MCA and <br>I'm Currently working in NavPragy Technology Pvt.Ltd.at AI/ML Position
 
 
 ## 🌐 Socials:
